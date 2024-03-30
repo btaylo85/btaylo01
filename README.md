@@ -6,7 +6,7 @@ I’m currently learning front-end web development to expand my skill set and cr
 
 I’m looking to collaborate on projects that merge design and technology, such as website redesigns or branding campaigns for social causes.
 
-You can reach me via email at brandon.taylor@email.com or DM me on Twitter @brandon_designs.
+You can reach me via email at btaylo85@asu.edu or DM me on Twitter @brandon_designs.
 
 Pronouns: he/him
 
